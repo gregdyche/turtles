@@ -1,0 +1,1 @@
+Pick a random, average day. Who are you on this day? Who you are is described by what you do. A writer writes. A runner runs. A seller sells. A coach potato watches tiktok. We are what we practice.
